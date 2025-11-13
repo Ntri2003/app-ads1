@@ -1,1 +1,1 @@
-# app-ads1
+google.com, pub-8189383927365623, DIRECT, f08c47fec0942fa0
